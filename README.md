@@ -4,3 +4,4 @@
 - 🌱 I’m currently learning Statistics and Machine Learning
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/chloe-m-cousin/)
 - 😄 Pronouns: she/her
+- 🎈 Fun fact: still trying to master the Flurry Rush in Zelda TOTK. Not quite there yet.
